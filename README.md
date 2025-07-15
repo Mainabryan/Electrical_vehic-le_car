@@ -7,3 +7,5 @@
 
 ![image](https://github.com/Mainabryan/Electrical_vehic-le_car/blob/5127604a4672a6e4cc26d2746bb948e277ced07d/Screenshot%202025-07-15%20123126.png)
 ![image](https://github.com/Mainabryan/Electrical_vehic-le_car/blob/e6ec8e6e78ac8692f8f6355c398d56f483c4a364/Screenshot%202025-07-15%20123145.png)
+
+![image](https://github.com/Mainabryan/Electrical_vehic-le_car/blob/1856983f6e1fb743f9316784ef3f6dab34d66904/Screenshot%202025-07-15%20123205.png)
